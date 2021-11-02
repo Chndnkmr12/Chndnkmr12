@@ -8,7 +8,7 @@
 Chndnkmr12/Chndnkmr12 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-<a href="https://skyeduclub.com/bihar-iti-counselling-date-2021-in-hindi/">कैसे Check करें
+<a href="https://skyeduclub.com/bihar-iti-counselling-date-2021-in-hindi/">Loan कैसे Apply करें
 </a>
 
 <a href="https://skyeduclub.com/">Sk
